@@ -20,6 +20,7 @@ All credits go to SUKI and the N1CN clan.
 
 If you have any problems or questions, feel free to contact me.
 > Mail: letssukitv@proton.me
+
 > Discord: letssukitv
 
 **LINKS**
